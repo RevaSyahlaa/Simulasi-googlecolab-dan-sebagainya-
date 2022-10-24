@@ -1,0 +1,1 @@
+# Simulasi-googlecolab-dan-sebagainya-
